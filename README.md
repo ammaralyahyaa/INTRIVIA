@@ -10,3 +10,6 @@ Seru banget!! Materi yang disampaikan bener-bener bermanfaat dan membuka wawasan
 
 ## Kesan Pesan Cluster 5 Sejauh Ini 
 Seneng banget bisa jadi bagian dari Cluster 5! Kegiatan bonding nya bener-bener seru, dari outbound, ngobrol-ngobrol santai, sampai jalan-jalan bareng ke Kayutangan. Asik poll pokoknya! Terima kasih banyak buat Kak Arin dan Kak Andrew yang super perhatian, fast response, selalu sigap kasih informasi, dan udah mengonsep acara bonding seseru ini. Teman-teman di Cluster 5 juga seru dan ramah banget, bikin suasana selalu hidup dan menyenangkan.
+
+## Harapan Kuliah 
+Harapan saya selama berkuliah adalah dapat menyerap ilmu dan keterampilan secara maksimal, mengembangkan potensi diri baik secara akademik maupun non-akademik, serta membangun relasi yang luas. Saya juga berharap bisa terus konsisten, menyelesaikan studi tepat waktu, dan menjadi pribadi yang siap memberikan dampak positif bagi sekitar.
